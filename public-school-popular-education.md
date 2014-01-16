@@ -19,6 +19,9 @@ The exhaustion of those naïvetés, both anti-dialectical, would culminate in th
 
 The mechanistic view of History that is certain that the future is inexorable, that the future comes as predicted, denies education of any power before the transformation of society's material conditions, in the same way that it denies any greater importance to subjectivity in History.
 
+Dialectically perceiving the relations between conscience [2] and world, the superation of the mechanistic view of History necessarily implies a new way of understanding History. History as possibility. This intelligence of History, which discards a predeterminate future, does not deny, however, the role of *conditioning* factors to which we are submitted. As it refuses History as a game of given ends, as it opposes the future as inexorable, History-as-possibility recognizes the importance of the decision as an act that implies rupture, the importance of conscience and subjectivity, of the critical intervention of human beings in the world's reconstruction. It recognizes the role of conscience being constructed in the praxis, of intelligence being invented and reinvented in the process and not as a stationary thing in me, almost separate from my body. It recognizes my body as a conscious body that can critically move in the world as it can "lose" the historical address. It recognizes my individuality that does not dilute or lose form in the social, nor does it outgrow the social. Finally, it recognizes the role of education and its limits.
+
 ## Footnotes
 
 [1] todo-poderosismo
+[2] consciência
