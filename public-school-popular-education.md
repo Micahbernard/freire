@@ -1,4 +1,4 @@
-## Public School and Popular Education
+## Public school and popular education
 #### Paulo Freire
 
 This statement proposes a reflection around the relation between *public education* and *popular education*.
